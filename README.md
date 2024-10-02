@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Thyeder
+- 👀 I’m interested in ... Programaçâo
+- 🌱 I’m currently learning ... Python
+- 💞️ I’m looking to collaborate on ... Muitas coisas relacionadas a programação
+- 📫 How to reach me ... Instagram, Whatsapp
+- 😄 Pronouns: ... Ele/Dele
+- ⚡ Fun fact: ... Tenho muito conhecimento sobre certas coisas por ter internet muito cedo
